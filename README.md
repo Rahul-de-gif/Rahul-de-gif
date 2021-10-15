@@ -8,3 +8,5 @@
 Rahul-de-gif/Rahul-de-gif is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+currently pursuing my graduation in Dr.LANKAPALLI BULLAYYA COLLEGE,VISAKHAPATNAM
+I WILL COMPLETE MY GRADUATION IN MAY 2022
